@@ -8,3 +8,9 @@
 ![photo](https://imglf6.lf127.net/img/44d991af83235419/MkQ2N09jTTFRT0FHNnNnaFFha1dLdCtYOUc1eE5mM0F6bEw2enRHT0R5TT0.png?imageView&thumbnail=1680x0)
 [  万籁俱寂的夜晚，一片温暖的灯光下，我常常捧起一本书静静地阅读,我常常被书中的故事感动着，让腮边的泪水静静地流淌着。我就是这样品尝着阅读的滋味，享受着阅读的幸福。
   回忆自己的阅读生涯，回忆阅读中的酸甜苦辣，我常常暗暗地流泪。——鲁迅《读书杂谈》](https://mp.zhizhuma.com/q?c=120IXMMA791&wxParamQr=1&sh=sh&vt_=1653229608156&_loginTime=1653229611843 "读书")  
+  
+[Bad Apple!!](https://www.bilibili.com/video/BV1x5411o7Kn)
+
+[Newton's Apple!](https://www.bilibili.com/video/BV1ir4y1c7oJ)
+
+[中国历史年表](https://www.bilibili.com/video/BV1n441127jG)
